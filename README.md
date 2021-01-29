@@ -45,4 +45,4 @@
 10. Done.
 
 
-P.S. They could just allow current residents to apply to waiting lists and I won't have todo all of this.
+P.S. They could just allow current residents to apply to waiting lists and I won't have to do all of this.
